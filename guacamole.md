@@ -6,4 +6,4 @@
 	
 # Instructions
 
-Put the avocado ...
+Put the avocado ON THE GROUND
